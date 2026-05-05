@@ -1,4 +1,4 @@
-## Hi there 👋
+## Haaiiii!!!! >w<
 
 ```she/her``` | ```🌍 Europe``` | ```NEET``` | ```Artist/Designer``` | ```Translator``` | ```Server Administration```
 
